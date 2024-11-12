@@ -1,2 +1,0 @@
-# Pothirendirahul.github.io
-Portfolio
